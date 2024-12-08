@@ -1,3 +1,3 @@
 # Jargon
-The attention I need, Suited for my stalkers, GL FRFR
+> The attention I couldn't get, Suited for stalking, GL FRFR
 # I love GIMP I need to learn https://www.GIMP.org asap frfrfrfrfrfrfr
