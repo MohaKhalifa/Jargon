@@ -1,2 +1,2 @@
   # Jargon
-- HElp me https://www.DUKCDUCKGO.com!!!!!!!!!!!  
+- HElp me https://www.DUckDUCKGO.com!!!!!!!!!!!  
